@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-EIGA890605HJCSRB05
+EIGA890605HJCSRB05
